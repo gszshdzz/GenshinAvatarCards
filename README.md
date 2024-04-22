@@ -20,6 +20,14 @@ B方卡和C立绘存在两张*魈 菲米尼 琳妮特 林尼 芙宁娜*的立绘
 
 ## 索引
 
+#### 4.7
+
+20240422  [克洛琳德](帖子/4.7-1.md) [米游社](https://www.miyoushe.com/ys/article/51865848)
+
+20240422  [希格雯](帖子/4.7-2.md) [米游社](https://www.miyoushe.com/ys/article/51866028)
+
+20240422  [赛索斯](帖子/4.7-3.md) [米游社](https://www.miyoushe.com/ys/article/51866178)
+
 #### 4.6
 
 20240129  [阿蕾奇诺](帖子/4.6-1.md) [米游社](https://www.miyoushe.com/ys/article/50199997)

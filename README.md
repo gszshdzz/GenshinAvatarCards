@@ -1,5 +1,7 @@
 # 原神角色预告帖子整合
 
+# 退坑不再更新
+
 ~~仓库名字实在不知道立绘怎么翻译了......~~
 
 版本4k无水印kv见 https://github.com/gszshdzz/GenshinKVImg/

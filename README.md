@@ -24,11 +24,13 @@ B方卡和C立绘存在两张*魈 菲米尼 琳妮特 林尼 芙宁娜*的立绘
 
 #### 5.5
 
-20240218  [伊安珊](帖子/5.5-1.md) [米游社](https://www.miyoushe.com/ys/article/62104870)
+20250218  [伊安珊](帖子/5.5-2.md) [米游社](https://www.miyoushe.com/ys/article/62104870)
+
+20250217  [瓦雷莎](帖子/5.5-1.md) [米游社](https://www.miyoushe.com/ys/article/62080282)
 
 #### 5.4
 
-20240106  [梦见月瑞希](帖子/5.4-1.md) [米游社](https://www.miyoushe.com/ys/article/60859018)
+20250106  [梦见月瑞希](帖子/5.4-1.md) [米游社](https://www.miyoushe.com/ys/article/60859018)
 
 #### 5.3
 

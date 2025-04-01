@@ -24,7 +24,9 @@ B方卡和C立绘存在两张*魈 菲米尼 琳妮特 林尼 芙宁娜*的立绘
 
 #### 5.6
 
-20250218  [爱可菲](帖子/5.6-1.md) [米游社](https://www.miyoushe.com/ys/article/63100428)
+20250401  [伊法](帖子/5.6-2.md) [米游社](https://www.miyoushe.com/ys/article/63130883)
+
+20250331  [爱可菲](帖子/5.6-1.md) [米游社](https://www.miyoushe.com/ys/article/63100428)
 
 #### 5.5
 

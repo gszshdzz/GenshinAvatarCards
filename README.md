@@ -27,6 +27,8 @@ B方卡和C立绘存在两张*魈 菲米尼 琳妮特 林尼 芙宁娜*的立绘
 
 #### 6.0
 
+20250804  [菲林斯](帖子/6.0-3.md) [米游社](https://www.miyoushe.com/ys/article/67127646)
+
 20250803  [爱诺](帖子/6.0-2.md) [米游社](https://www.miyoushe.com/ys/article/67102890)
 
 20250803  [菈乌玛](帖子/6.0-1.md) [米游社](https://www.miyoushe.com/ys/article/67091729)
@@ -344,6 +346,7 @@ B方卡和C立绘存在两张*魈 菲米尼 琳妮特 林尼 芙宁娜*的立绘
 #### 大饼
 
 20220928  [戴因斯雷布](帖子/air.md) [米游社](https://www.miyoushe.com/ys/article/1897062)
+
 
 
 

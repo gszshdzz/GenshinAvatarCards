@@ -8,7 +8,7 @@
 
 ​                                        ——自称通晓命运之人
 
-![](./../B方形卡/#DAINSLEIF-戴因斯雷布.jpg)
+![](./../B方形卡/DAINSLEIF-戴因斯雷布.jpg)
 
-![](./../C立绘/#DAINSLEIF-戴因斯雷布.jpg)
+![](./../C立绘/DAINSLEIF-戴因斯雷布.jpg)
 

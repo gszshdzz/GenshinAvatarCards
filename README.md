@@ -27,6 +27,8 @@ B方卡和C立绘存在两张*魈 菲米尼 琳妮特 林尼 芙宁娜*的立绘
 
 #### 6.6
 
+20260414  [布伦妮](帖子/6.6-3.md) [米游社](https://www.miyoushe.com/ys/article/74619630)
+
 20260414  [洛恩](帖子/6.6-2.md) [米游社](https://www.miyoushe.com/ys/article/74614993)
 
 20260413  [尼可](帖子/6.6-1.md) [米游社](https://www.miyoushe.com/ys/article/74593204)

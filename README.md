@@ -27,6 +27,12 @@ B方卡和C立绘存在两张*魈 菲米尼 琳妮特 林尼 芙宁娜*的立绘
 
 #### 7.0
 
+20260818  [沃雅妮莎](帖子/7.1-2.md) [米游社](https://www.miyoushe.com/ys/article/77567679)
+
+20260817  [薇斯纳](帖子/7.1-1.md) [米游社](https://www.miyoushe.com/ys/article/77537732)
+
+#### 7.0
+
 20260815  [旅行者-TPS](帖子/7.0-3.md) [米游社](https://www.miyoushe.com/ys/article/77414375)
 
 20260703  [阿罗夏](帖子/7.0-2.md) [米游社](https://www.miyoushe.com/ys/article/76419633)
